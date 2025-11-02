@@ -1,5 +1,5 @@
 ## Theo Adams 
-### [IG](https://www.instagram.com/theoadms/) / tadams2@bates.edu 
+### [IG](https://www.instagram.com/theoadms/) / [📧](mailto:tadams2@bates.edu) 
 ![inverted still life 1](https://github.com/user-attachments/assets/a870731c-ad71-42ed-ab37-ff62a83ecdbb)
 ![halloween peaks print](https://github.com/user-attachments/assets/30864905-cccd-4219-9e03-621f6ac5b77e)
 ![georgia](https://github.com/user-attachments/assets/806670bf-ad12-42f1-bbac-e9bd5ee76034)
