@@ -1,16 +1,12 @@
 ## Theo Adams / tadams2@bates.edu / [IG](https://www.instagram.com/theoadms/)
-
-<!--
-**theoadms/theoadms** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![inverted still life 1](https://github.com/user-attachments/assets/a870731c-ad71-42ed-ab37-ff62a83ecdbb)
+![halloween peaks print](https://github.com/user-attachments/assets/30864905-cccd-4219-9e03-621f6ac5b77e)
+![georgia](https://github.com/user-attachments/assets/806670bf-ad12-42f1-bbac-e9bd5ee76034)
+![isa inverted](https://github.com/user-attachments/assets/610d615d-bd1b-4052-9d02-6d4689c2519e)
+![sockz](https://github.com/user-attachments/assets/30b702b8-62af-46e0-a0df-354986284d87)
+![trompe oeil](https://github.com/user-attachments/assets/7ad194ee-d7dd-4539-8ad9-d7103f1368c9)
+![lilly and erin](https://github.com/user-attachments/assets/862362b0-2444-4aa9-b46b-300e0b9916f1)
+![el greco print](https://github.com/user-attachments/assets/8d497d7b-fe55-4d39-8d50-e1beea83197d)
+![unfinished still life 2023](https://github.com/user-attachments/assets/237e55e2-c387-4599-b78c-3a617f374a07)
+![dancing in front of tv](https://github.com/user-attachments/assets/962cc40a-a488-4619-ba04-8535dd81c9aa)
+![snl building drawing](https://github.com/user-attachments/assets/e5bf899b-4b89-44fa-a410-b2384baaa59b)
