@@ -1,4 +1,4 @@
-## tadams2@bates.edu [IG]([https://www.instagram.com](https://www.instagram.com/theoadms/)
+## Theo Adams / tadams2@bates.edu / [IG](https://www.instagram.com/theoadms/)
 
 <!--
 **theoadms/theoadms** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
